@@ -1,3 +1,3 @@
-# Dymosis Live Action Gameplay Youtube Channel
+# Dymosis
 
-https://youtube.com/@ThijsgamingYT
+Dymosis is an experimental beatsaber mod trying to achieve the impossible.
